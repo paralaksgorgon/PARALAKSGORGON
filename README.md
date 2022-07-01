@@ -1,7 +1,8 @@
 ### Hi there 👋
 mike not love 11,he love willmike not love 11,he love willmike not love 11,he love will
 
-Eu gosto de stranger things,eu amooooo comer, comer e comer,adoro dormir e amo uma PESSOA COM A LETRA M
+Eu gosto de stranger things,eu amooooo comer, comer e comer,adoro dormir e não gosto de ninguém
+
 <!--
 **paralaksgorgon/PARALAKSGORGON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
