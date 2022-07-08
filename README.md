@@ -1,7 +1,10 @@
 ### Hi there 👋
 mike not love 11,he love willmike not love 11,he love willmike not love 11,he love will
 
-Eu gosto de stranger things,eu amooooo comer, comer e comer,adoro dormir e não gosto de ninguém
+Eu gosto de stranger things,eu amooooo comer, comer e comer,adoro dormir e não gosto de ninguém.
+Stadew Valley é basicamente meu mais novo jogo favorito,acho que uma fazenda no meio do nada seria ótimo.
+
+!(![image](https://user-images.githubusercontent.com/106978959/178042042-2394e37b-c7c7-4d4b-aa5d-49b3b961ab87.png)
 
 <!--
 **paralaksgorgon/PARALAKSGORGON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
